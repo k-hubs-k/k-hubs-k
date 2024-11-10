@@ -2,7 +2,7 @@
 
 ## About me
   - 👤 RAHERIMANANTENA Fedro Hubert
-  - ⏰ 17 years old
+  - ⏰ 18 years old
   - 🎓 3rd year student
   - 🌍 From Madagascar
 
